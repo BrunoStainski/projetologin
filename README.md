@@ -25,4 +25,4 @@ O mesmo realizou o passo-a-passo de configuração do ambiente de desenvolviment
 
 [Bruno Augusto Stainski Parente](https://github.com/Jslus12)
 
-[LinkeDin](https://www.linkedin.com/in/jo%C3%A3o-d-ba44923b0/)
+[LinkeDin](https://www.linkedin.com/in/bruno-stainski-bb8479352/)
